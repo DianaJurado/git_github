@@ -2,4 +2,4 @@
 
 ## ¿Cómo estan?
 
-¿que hacen?
+¿que hacen? Mi nombre es Diana, me salí de la Uni y me dediqué al Marketing digital y a el desarrollo web
